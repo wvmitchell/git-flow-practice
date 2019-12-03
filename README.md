@@ -1,24 +1,24 @@
-Walt had a little lamb,  
-   Its fleece was white as snow,  
+Walt had a little snake,  
+   Its scales were green as leaves,  
 And every where that Walt went  
-   The lamb was sure to go ;  
+   The snake was sure to be;  
 He followed her to school one day—  
    That was against the rule,  
 It made the children laugh and play,  
-   To see a lamb at school.  
+   To see a snake at school.  
 
 And so the Teacher turned him out,  
-   But still he lingered near,  
+   But still he slithered near,  
 And waited patiently about,  
    Till Walt did appear ;  
-And then he ran to her, and laid  
-   His head upon her arm,  
+And then he slid to her, and coiled  
+   His body 'round her arm,  
 As if he said—‘ I’m not afraid—  
    You’ll keep me from all harm.’  
 
-‘ What makes the lamb love Walt so ?’  
+‘ What makes the snake love Walt so ?’  
    The eager children cry—  
-‘ O, Walt loves the lamb, you know,’  
+‘ O, Walt loves the snake, you know,’  
    The Teacher did reply ;—  
 ‘ And you each gentle animal  
    In confidence may bind,  
