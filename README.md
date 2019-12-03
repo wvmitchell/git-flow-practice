@@ -1,7 +1,7 @@
-Mary had a little lamb,  
-   Its fleece was white as snow,  
+Mary had a little snake,  
+   Its scales were green as leaves,  
 And every where that Mary went  
-   The lamb was sure to go ;  
+   The snake was sure to be ;  
 He followed her to school one day—  
    That was against the rule,  
 It made the children laugh and play,  
