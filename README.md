@@ -18,7 +18,7 @@ As if he said—‘ I’m not afraid—
 
 ‘ What makes the lamb love Walt so ?’  
    The eager children cry—  
-‘ O, Mary loves the lamb, you know,’  
+‘ O, Walt loves the lamb, you know,’  
    The Teacher did reply ;—  
 ‘ And you each gentle animal  
    In confidence may bind,  
