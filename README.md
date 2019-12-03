@@ -1,6 +1,6 @@
-Mary had a little snake,  
+Walt had a little snake,  
    Its scales were green as leaves,  
-And every where that Mary went  
+And every where that Walt went  
    The snake was sure to be;  
 He followed her to school one day—  
    That was against the rule,  
@@ -10,15 +10,15 @@ It made the children laugh and play,
 And so the Teacher turned him out,  
    But still he slithered near,  
 And waited patiently about,  
-   Till Mary did appear ;  
+   Till Walt did appear ;  
 And then he slid to her, and coiled  
    His body 'round her arm,  
 As if he said—‘ I’m not afraid—  
    You’ll keep me from all harm.’  
 
-‘ What makes the snake love Mary so ?’  
+‘ What makes the snake love Walt so ?’  
    The eager children cry—  
-‘ O, Mary loves the snake, you know,’  
+‘ O, Walt loves the snake, you know,’  
    The Teacher did reply ;—  
 ‘ And you each gentle animal  
    In confidence may bind,  
